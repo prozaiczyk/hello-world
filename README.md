@@ -8,3 +8,4 @@ I will not be in charge of your life
 It's not my problem that you guys are tricky.
 Good night!
 
+I joked! I like you so much that life without you would be sad and shitty
